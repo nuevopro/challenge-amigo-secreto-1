@@ -80,3 +80,6 @@ https://github.com/nuevopro
 ________________________________________
 ¡Disfruta sorteando tu amigo secreto! ✨
 
+<img width="1033" height="879" alt="Captura de pantalla 2025-09-22 224500" src="https://github.com/user-attachments/assets/c28915c0-2257-4785-869e-81506312ec6c" />
+
+
